@@ -1,1 +1,1 @@
-# workin towards finsih the website
+# working towards finishing hat website
